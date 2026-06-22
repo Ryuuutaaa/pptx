@@ -6,3 +6,6 @@ public pptx presentation
 
 # GSlide
 <a href="https://docs.google.com/presentation/d/1SMtTzUYVVXtinbVTDgVccYk1b0tA2HNA_PS906oKwAc/edit?usp=sharing" target="_blank">click here</a>
+
+
+https://youtu.be/7qq9rnRhAms
