@@ -9,3 +9,5 @@ public pptx presentation
 
 
 https://youtu.be/7qq9rnRhAms
+
+https://docs.google.com/presentation/d/1AEL1hXex8B3nugXhAXM_wOsMJ3wtnDAXRaWBGTduZf8/edit?usp=sharing
