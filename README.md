@@ -13,3 +13,5 @@ https://youtu.be/7qq9rnRhAms
 https://docs.google.com/presentation/d/1AEL1hXex8B3nugXhAXM_wOsMJ3wtnDAXRaWBGTduZf8/edit?usp=sharing
 
 https://drive.google.com/drive/folders/1Q7LfDO4L1dCyrti1ijzO_6eH9pWbLJx-?usp=sharing
+
+https://docs.google.com/presentation/d/1k43CRsk3vjFct0Y5YJ5oY1869AO_tq3AvqCdcXLAyqA/edit?slide=id.p13#slide=id.p13
